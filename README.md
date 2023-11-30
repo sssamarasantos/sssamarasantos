@@ -1,4 +1,4 @@
-### Olá eu sou a Samara, desenvolvedor júnior! 👩🏻‍💻
+### Olá eu sou a Samara, desenvolvedor pleno! 👩🏻‍💻
 
 
 <div align="center">
